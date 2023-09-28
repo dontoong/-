@@ -25,3 +25,20 @@
 2021. 4. 8. 진청시티 bgm 10시간 : https://youtu.be/j01j0F5gX58?si=iKbKWjQXsNn8SJhH<br><br>
 2021. 5. 5. 216번도로 bgm 10시간 (217번도로, 예지호수근처) : https://youtu.be/FJUn_CQmvzM?si=UFRi-qS_oQ7xFhIJ<br><br>
 2021. 5. 16. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 호수 bgm 4시간 (진실호수, 입지호수, 예지호수) : https://youtu.be/YSvjlxSTECM?si=uP4Vj6i9wJ_s-cUf<br><br>
+2021. 5. 28. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 포켓몬리그 브금 10시간 : https://youtu.be/_GaVT9ui4Sw?si=KrTUtINJIC7ADvsG<br><br>
+2021. 6. 1. 보배마을 bgm 10시간 : https://youtu.be/Sq3u7RqXeIw?si=ATAFYU_txoTbF2xk<br><br>
+2021. 6. 4. 운하시티 bgm 10시간 : https://youtu.be/wOd6ozbylIE?si=VNtL5g4V2Tpdo7Yq<br><br>
+2021. 7. 2. 209번도로 bgm 10시간(212번도로, 222번도로) : https://youtu.be/p2IaUgN0PQI?si=Z1vHpY4uMjhqptu3<br><br>
+2021. 7. 13. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 엔딩크레딧 bgm 1시간 : https://youtu.be/AZVWWlsAWeY?si=sI0WUmGI-AxincQ5<br><br>
+2021. 7. 28. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 자전거 bgm 2시간 : https://youtu.be/6hVMKUP_0W4?si=ba_osCoDYaOqgCE9<br><br>
+2021. 9. 18. 그랜드시티 bgm 10시간 : https://youtu.be/b2KJSf4jG80?si=ZUJT39i4sLlGWldt<br><br>
+2021. 10. 26. 포켓몬 B/W(블랙, 화이트) 엔딩크레딧 bgm 1시간 : https://youtu.be/zAWCXJu0v9I?si=AvBouCQIlKjAixco
+<br><br>
+2022. 3. 14. 포켓몬 HG/SS(하트골드, 소울실버) 엔딩크레딧 bgm 1시간 : https://youtu.be/6MIX8vFoI-s?si=YulgRSsVQsE9dsCt<br><br>
+2022. 5. 22. 스카이애로 브리지 bgm 10시간 : https://youtu.be/p2mAvNZPtO4?si=PUYzVkkZQJrc09FC<br><br>
+2022. 8. 2. 자연공원 bgm 10시간 : https://youtu.be/vIdKHXvb9L0?si=NzssnnVejxYKH7K9<br><br>
+2022. 8. 30. 인주시티 bgm 10시간 : https://youtu.be/48PF604Gu3M?si=qbZvOhVw3CgXJbm9<br><br>
+2022. 8. 31. 도라지시티 bgm 10시간 : https://youtu.be/V_uC8nZ1vrA?si=qYQGcPr9CzWmlQmh<br><br>
+2022. 9. 1. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 오프닝 bgm 10시간 : https://youtu.be/GFEFv-cOkrw?si=QU0uhrJEA92G9uq3<br><br>
+2022. 10. 20. 파이트에리어 bgm 10시간 : https://youtu.be/nSIX81ZyPx0?si=3uDO_6FqsxPnBbJQ<br><br>
+2022. 12. 12. 천관산(창기둥 가는 길) bgm 10시간 : https://youtu.be/vM9qNUME9qI?si=8KoPUtCB_AO9mVV4<br><br>
