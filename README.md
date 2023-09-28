@@ -11,6 +11,7 @@
 
 
 ## 하나씩 보기
+###총 38개의 영상
 
 2020.8.2. 포켓몬스터 꽃향기마을(밤) BGM 1시간 : https://youtu.be/HhYSqXyx9CI?si=irz5sI1xhDCQq1Ez<br><br>
 2020.8.28. 영원시티(밤) bgm 10시간 : https://youtu.be/sQ-uVk-GI-E?si=k6WybH4IePtvzAIk<br><br>
