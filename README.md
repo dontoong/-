@@ -12,6 +12,6 @@
 
 ## 하나씩 보기
 
-포켓몬스터 꽃향기마을(밤) BGM 1시간 : https://youtu.be/HhYSqXyx9CI?si=irz5sI1xhDCQq1Ez
-영원시티(밤) bgm 10시간 : https://youtu.be/sQ-uVk-GI-E?si=k6WybH4IePtvzAIk
-포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 파도타기 bgm 1시간 : https://youtu.be/fUzilz2rQDo?si=SoKQ2hOeUIW6vF8q
+포켓몬스터 꽃향기마을(밤) BGM 1시간 : https://youtu.be/HhYSqXyx9CI?si=irz5sI1xhDCQq1Ez<br>
+영원시티(밤) bgm 10시간 : https://youtu.be/sQ-uVk-GI-E?si=k6WybH4IePtvzAIk<br>
+포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 파도타기 bgm 1시간 : https://youtu.be/fUzilz2rQDo?si=SoKQ2hOeUIW6vF8q<br>
