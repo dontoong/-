@@ -42,3 +42,12 @@
 2022. 9. 1. 포켓몬 DP/Pt(디아루가, 펄기아, 기라티나) 오프닝 bgm 10시간 : https://youtu.be/GFEFv-cOkrw?si=QU0uhrJEA92G9uq3<br><br>
 2022. 10. 20. 파이트에리어 bgm 10시간 : https://youtu.be/nSIX81ZyPx0?si=3uDO_6FqsxPnBbJQ<br><br>
 2022. 12. 12. 천관산(창기둥 가는 길) bgm 10시간 : https://youtu.be/vM9qNUME9qI?si=8KoPUtCB_AO9mVV4<br><br>
+2022. 12. 17. 리조트에리어(입지호수 근처, 213번도로) bgm 10시간 : https://youtu.be/F0I78sbD-28?si=Gb1pufikCyXa9i2v<br><br>
+2023. 1. 13. 228번도로(229번도로, 230번수로) bgm 10시간 : https://youtu.be/RAWnT1_OIA0?si=nRnNseLxEBAjRgtu<br><br>
+2023. 1. 29. 들판시티(신수마을) bgm 10시간 : https://youtu.be/z2hp3rQvSns?si=azEEaZjsUl3FLn0Y<br><br>
+2023. 2. 15. 칠보시티 bgm 10시간 : https://youtu.be/iV-RubPfJtw?si=eq1-70cN4IutGozF<br><br>
+2023. 2. 21. 미로마을 bgm 10시간 : https://youtu.be/lh5T7eqdzG4?si=X7uY3BD7tyd4ZHMC<br><br>
+2023. 3. 25. 고도마을 bgm 10시간 : https://youtu.be/ZeEdXSmCmjw?si=flSMndZYvhy1NZVJ<br><br>
+2023. 7. 29. 무쇠시티 bgm 10시간 : https://youtu.be/RQ8_Yb5uU1k?si=1XTgcPIEM4CNXmEn<br><br>
+2023. 8. 12. 210번도로(214번도로, 215번도로) / (Pt한정) 숨겨진 샘의 길, 송별의 샘 bgm 10시간 : https://youtu.be/ApImbzvDecQ?si=HjqnGezgPTC_arV7<br><br>
+2023. 9. 2. 포켓몬 X/Y 게이트 bgm 10시간 : https://youtu.be/u24ZaCCOUnA?si=FYm7qIe9t8XNCi56<br><br>
