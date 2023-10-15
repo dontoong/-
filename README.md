@@ -52,3 +52,4 @@
 2023. 7. 29. 무쇠시티 bgm 10시간 : https://youtu.be/RQ8_Yb5uU1k?si=1XTgcPIEM4CNXmEn<br><br>
 2023. 8. 12. 210번도로(214번도로, 215번도로) / (Pt한정) 숨겨진 샘의 길, 송별의 샘 bgm 10시간 : https://youtu.be/ApImbzvDecQ?si=HjqnGezgPTC_arV7<br><br>
 2023. 9. 2. 포켓몬 X/Y 게이트 bgm 10시간 : https://youtu.be/u24ZaCCOUnA?si=FYm7qIe9t8XNCi56<br><br>
+2023. 9. 28. 5세대 체육관 관장 마지막 대결(승리는 눈 앞에!) bgm 10시간 : https://youtu.be/fWsAchNHVB8?si=bnGj5Sb5_Bw3eGnK
